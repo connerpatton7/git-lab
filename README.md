@@ -1,1 +1,1 @@
-Conner Patton, connerpatton7
+CS 2400, Section 100
